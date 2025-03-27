@@ -1,5 +1,5 @@
 推特社区最新回家路
-最新入口：https://tuite01.com
+最新入口：https://tuite05.com
 
 1.不需要翻墙，使用时请尽量关闭vpn
 2.打开手机流量或者wifi
@@ -7,7 +7,7 @@
 
 永久入口：https://ttsq1.com
 
-主页入口：https://tuiteshequ.com
+主页入口：https://sfktv66.com
 
 需要使用vpn或梯子等科学上网方式
 
