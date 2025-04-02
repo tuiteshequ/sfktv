@@ -1,5 +1,5 @@
 推特社区最新回家路
-最新入口：https://tuite05.com
+最新入口：https://tuite09.com
 
 1.不需要翻墙，使用时请尽量关闭vpn
 2.打开手机流量或者wifi
@@ -13,7 +13,7 @@
 
 官方电报（telegram）群：https://t.me/ttsq_00
 
-官方推特：https://x.com/ttsq_01
+官方推特：https://x.com/sifangktv1
 
 新地址获取
 tuiteshequ@gmail.com
