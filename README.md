@@ -11,7 +11,7 @@
 
 需要使用vpn或梯子等科学上网方式
 
-官方电报（telegram）群：https://t.me/ttsq_00
+官方电报（telegram）群：https://t.me/sfktv
 
 官方推特：https://x.com/sifangktv1
 
